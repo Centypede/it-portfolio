@@ -1,1 +1,1 @@
-Thanks for checking out my projects! The list is ever growing as I work on new projects and learn new technologies.
+Thanks for checking out my projects! The list is ever growing as I work on new projects and learn new technologies. I am currently building out these two projects and making sure the styling and formatting of the screenshots looks presentable. Check back soon!
